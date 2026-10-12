@@ -4,3 +4,5 @@ student
 
 rodzaj męski
 
+jedno zdanie :)
+
