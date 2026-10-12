@@ -2,7 +2,9 @@
 
 Nazwa zespołu: M&M'sy
 
-## Skład Maria Siekierka Marta Gutowska Michał Cichocki
+## Skład
+ 
+Maria Siekierka
 
 ## Motto 
 
