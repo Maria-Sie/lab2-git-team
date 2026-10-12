@@ -1,8 +1,10 @@
 # Zespół
 
-Nazwa zespołu: M\&M'sy
+Nazwa zespołu: MnMnM
 
-## Skład Maria Siekierka Marta Gutowska Michał Cichocki
+## Skład
+ 
+Maria Siekierka
 
 ## Motto
 
