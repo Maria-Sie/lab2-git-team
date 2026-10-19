@@ -8,7 +8,7 @@ Maria Siekierka
 
 ## Motto
 
-Templates rządzą
+Jesteśmy waleczni jak lwy
 
 ## Ulubione technologie CISCO <3
 
