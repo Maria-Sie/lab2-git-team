@@ -1,4 +1,4 @@
-# Zespół
+# Zespół najlepszy
 
 Nazwa zespołu: Bajkowe Jednorożce
 
