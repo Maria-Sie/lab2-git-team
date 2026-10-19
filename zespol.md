@@ -1,6 +1,6 @@
 # Zespół
 
-Nazwa zespołu: MnMnM
+Nazwa zespołu: Nazwa Fajna
 
 ## Skład
  
