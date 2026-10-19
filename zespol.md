@@ -1,4 +1,4 @@
-# Zespół
+# Muminki
 
 Nazwa zespołu: Bajkowe Jednorożce
 
