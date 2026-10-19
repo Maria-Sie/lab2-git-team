@@ -8,7 +8,7 @@ Maria Siekierka
 
 ## Motto
 
-Potrzebuję odpoczynku, Lubimy gita
+Potrzebuję odpoczynku, Lubimy gita i Jesteśmy waleczni jak lwy
 
 ## Ulubione technologie CISCO <3
 
