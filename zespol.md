@@ -1,6 +1,6 @@
 # Zespół
 
-Nazwa zespołu: Nazwa Fajna
+Nazwa zespołu: Bajkowe Jednorożce
 
 ## Skład
  
