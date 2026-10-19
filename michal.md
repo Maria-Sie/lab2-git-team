@@ -8,5 +8,5 @@ jedno zdanie :)
 
 
 
-\## Hobby: infarmoatyka
+\## Hobby: informatyka ;p przepraszam za literówkę
 
