@@ -8,7 +8,7 @@ Maria Siekierka
 
 ## Motto
 
-Templates rządzą
+Lubimy gita
 
 ## Ulubione technologie CISCO <3
 
