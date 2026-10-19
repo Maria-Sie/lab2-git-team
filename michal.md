@@ -6,3 +6,7 @@ rodzaj męski
 
 jedno zdanie :)
 
+
+
+\## Hobby: infarmoatyka
+
