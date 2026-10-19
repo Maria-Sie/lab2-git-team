@@ -1,4 +1,4 @@
-# Zespół najlepszy
+# Muminki
 
 Nazwa zespołu: Bajkowe Jednorożce
 
