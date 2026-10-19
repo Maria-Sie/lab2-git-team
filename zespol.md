@@ -1,6 +1,6 @@
 # Zespół
 
-Nazwa zespołu: Groszki
+Nazwa zespołu: Bajkowe Jednorożce
 
 ## Skład
  
