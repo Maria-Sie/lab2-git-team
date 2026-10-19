@@ -4,4 +4,4 @@ Kocham jeść pizzę i oglądać produkcje MCU.
 Lubię wydawać pieniędze na figurki i Lego.
 
 ## Hobby
-Granie w Lig of Legends
+Granie w League of Legends
