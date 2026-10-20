@@ -1,1 +1,2 @@
 zdać
+znaleźć pracę
